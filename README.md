@@ -1,0 +1,1 @@
+# 6-en-1-pq-o-sistma-operativo
